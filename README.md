@@ -1,2 +1,2 @@
-# Save-the-world-NO-WaRs-Gazv
-This is to support the most vulnerable. 0.1$ is appreciated
+# I just need money to survive this is not a scam
+This is to support me. 0.1$ is appreciated
